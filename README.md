@@ -8,4 +8,4 @@ My name is Yalda Rahmati.
 📍 Learning advanced data tools and working on real-world projects.
 ✨ Open to collaboration and eager to contribute to innovative solutions!
 
-🔗 Connect with me on LinkedIn: https://www.linkedin.com/in/yalda-rahmati-152451248/
+🔗 Connect with me on LinkedIn: https://www.linkedin.com/in/yalda-rahmati-/
